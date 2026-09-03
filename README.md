@@ -1,5 +1,7 @@
 <samp>
 
-best in the business
+myself rizaan
+
+creativity is intelligence having fun
 
 <samp>
