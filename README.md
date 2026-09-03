@@ -2,6 +2,6 @@
 
 myself rizaan
 
-creativity is intelligence having fun
+one of one
 
 <samp>
