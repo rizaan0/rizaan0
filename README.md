@@ -2,6 +2,6 @@
 
 myself rizaan
 
-one of one
+coding is fun [only when it works]
 
 <samp>
